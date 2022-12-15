@@ -1,4 +1,4 @@
 # Dynamic_Island
 Iphone 14 
-If anyone who know animmation please contact
+If anyone who know animation please contact
 {add your photo}
